@@ -1,6 +1,6 @@
 👋 Hi, Suveen here.
 
-📫 How to reach me: suveen.ellawela@u.nus.edu or @SuveenE on X(Twitter)
+📫 How to reach me: suveen.ellawela@u.nus.edu or <a href="https://x.com/SuveenE" target="_blank">@SuveenE</a> on X (Twitter)
 
 🌍 Checkout my website - https://suveenellawela.com/
 
