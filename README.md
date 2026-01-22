@@ -1,4 +1,4 @@
-👋 Hi, Suveen here.
+👋 Hi, Suveen here. Founding Engineer at Cortex AI (YC F25). Prev. NUS, Stanford MS&E and TinyFish.
 
 📫 How to reach me: hello@suveenellawela.com or <a href="https://x.com/SuveenE" target="_blank">@SuveenE</a> on X (Twitter)
 
